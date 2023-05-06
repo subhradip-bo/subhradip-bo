@@ -7,6 +7,6 @@
 - 🤔 I’m looking for help with ML(as i am a beginner)
 - 💬 Ask me about anything.
 - 📫 How to reach me: via subhradipbodhak1493@gmail.com
-- 😄 Pronouns: he/him
+
 
 
